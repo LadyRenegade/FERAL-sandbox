@@ -20,8 +20,6 @@ Bans are final with no appeals process
 
 Terms of Service
 
-Two versions side by side on the same page
-Plain English version and full legal version
-Both legally valid
-User chooses what they read
-Must be reviewed by a lawyer before community launches
+Three versions on the same page. Full legal text reviewed by a lawyer. Plain English written version that sounds like Jen. Plain English audio or video version for people who don't want to read or have trouble reading. All three legally valid. User chooses how they take it in. Must be reviewed by a lawyer before community launches.
+
+Age and Content Warning This app contains adult language and mildly inappropriate content. No, not THAT kind. Calm down. Users must confirm they are 18 or older or have parental consent before accessing the app
